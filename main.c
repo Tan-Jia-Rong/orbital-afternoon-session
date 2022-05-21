@@ -1,1 +1,1 @@
-nigga ky
+white ky
